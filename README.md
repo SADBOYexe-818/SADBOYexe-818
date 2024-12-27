@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SADBOYexe-818
-- 👀 I’m interested in- Call Of Duty Mobile Gameplay
+- 👀 I’m interested in- Mobile Gaming 
 - 💞️ I’m looking to collaborate on- Mobile game mods/Dev.
 - 📫 How to reach me- darkkocodm@gmail.com
 
